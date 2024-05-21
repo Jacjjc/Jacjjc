@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jacjjc
+- 👋 Hi, I’m Sullivan
 - 👀 I’m interested in Gaming
 - 💞️ I’m looking to collaborate on discord
 - 📫 How to reach me Sullivan_Mia on discord
